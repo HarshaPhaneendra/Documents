@@ -1,2 +1,2 @@
 # Documents
-Kindly find my Master Thesis transcript, work and residence permits along with my interships completion cerificates. 
+Kindly find my Master's and Bachelor's degree certificates. Along with my Thesis/Interships completion cerificates and current work & residence permits.
